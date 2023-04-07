@@ -21,3 +21,5 @@ Let’s see where the government paints and compare the rationale.
 The [lost_sparrow](https://twitter.com/cap_lostsparrow) raised an interesting fact on Twitter:
 
 `Due to rough finishing of  the surfaces , it may probably scatter  the  light than reflect it . In the areas with variable roof heights, people living in higher floors may need to buy blinders and goggles to save their  eyes? (Akin to snow blindness )`
+
+[Bhavana Poosarla](https://www.linkedin.com/in/bhavanapoosarla/) debated on the efficacy of solar reflective paints vs green-roofs. [Chicago's Green Rooftop Revolution](https://www.midstory.org/a-garden-in-the-sky-chicagos-green-rooftop-revolution/#:~:text=With%20over%20500%20green%20roofs,of%20dollars%20in%20utility%20bills)
